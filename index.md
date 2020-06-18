@@ -9,3 +9,7 @@ Taki Tachibana is the male protagonist of Kimi no Na wa.. He is a 17-year old hi
 * Has artistic abilities
 * Charismatic and sociable
 * Very determined (his search for Mitsuha)
+
+## ***"*** *I wanted to tell you... That wherever you are in the world, I'll search for you.* ***"***
+ — Taki talks about his feelings towards Mitsuha Miyamizu.
+
