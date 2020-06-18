@@ -1,1 +1,1 @@
-A website for my favourite character is currently being built here!
+# Taki Tachibana - *"Our timelines weren’t in step. If time can really be turned back, give me one last chance."*
